@@ -1,1 +1,1 @@
-# Cikolatal-K-p-Tarifi-odev3
+# Cikolatali-Küp-Tarifi-odev3
